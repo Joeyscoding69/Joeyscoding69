@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Joeyscoding69
+- 👀 I’m interested in Discord Bot Development
+- 🌱 I’m currently learning Java and Python
+- 💞️ I’m looking to collaborate on nothing rn.
+- 📫 How to reach me - Discord....°🦘Joey🦘°#7777
